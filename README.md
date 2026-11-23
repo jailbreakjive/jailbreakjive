@@ -4,7 +4,7 @@
     <td> <img align="right" src="https://files.catbox.moe/b1qj0n.png" width=60% height=60%> </td>
     <td>
       <div align="center">
-      Call meㅤROCKET.<br>
+      Call meㅤ<b>$\color{#344b4e}{\textsf{Rocket}}$</b>.<br>
 Any/Sheㅤ18yoㅤButch<br>
 Mirrorsharing Sword yume<br>  
 <sub><a href="https://fluffle.cc/implode" target="_blank">pt info</a>ㅤ<a href="https://rocket.atabook.org/" target="_blank">‎新book</a></sub>
