@@ -4,12 +4,10 @@
     <td> <img align="right" src="https://files.catbox.moe/b1qj0n.png" width=60% height=60%> </td>
     <td>
       <div align="center">
-      D9FUJDSFD
-      D9FUJDSFDFS
-    D9FUJDSFD
-    D9FUJDSFD
-    D9FUJDSFD
-    D9FUJDSFD
+      Call meㅤROCKET.<br>
+Any/Sheㅤ18yoㅤButch<br>
+Mirrorsharing Sword yume<br>  
+<sub><a href="https://fluffle.cc/implode" target="_blank">pt info</a>ㅤ<a href="https://rocket.atabook.org/" target="_blank">‎新book</a></sub>
        <details>             
 <summary></summary> 
  <sub> friends i usually sit w/ :-3  <br>
